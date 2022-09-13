@@ -1,2 +1,2 @@
 "GAINIOZ" 
-👉👉👉 https://gainioz.netlify.app/#top 👈👈👈
+👉👉👉 https://gainioz.netlify.app/ 👈👈👈
